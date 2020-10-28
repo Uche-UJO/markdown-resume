@@ -76,13 +76,13 @@
 
 
 ##### **University of Houston**, Houston, TX 				 	          	         			[May 2018]
-* ##### Master of Science – Technology Project Management (CGPA: 3.38)
+* ##### Master of Science, Technology Project Management (CGPA: 3.38)
     * ###### **Capstone Project**: Used project management methods and supply chain practices to improve inventory management of GTBank’s ATMs across Lagos, Nigeria by 20%.
     * ###### **Quality Improvement in Project Management**: Reduced order fulfillment times for Spectrum Uniforms, Houston, Texas by 15% using lean six sigma methodologies.
 
 
 ##### **Federal University of Technology**, Owerri, Nigeria                     [Dec. 2006]
-* ##### Bachelor of Technology (B. Tech.) Degree in Geology
+* ##### Bachelor of Technology (B. Tech.), Geology
 
 
 
